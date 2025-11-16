@@ -8,9 +8,11 @@
 </div>
 
 <p align="center">
-hello! you can call me niko or callie, or any of the names of whoever is fronting :B<br><br>
-i'm mostly offtab or afk, if not, i'm with friends! feel free to c+h when i'm offtab/afk, but have in mind that some alters prefer c+h only for friends. whisper if you want to talk!<br><br>
-i don't have a dni! interact anytime whoever you are (except when dniu- is in my name). i like making new friends! i might be awkard at first, but i'll talk more when i feel comfortable to!<br><br>
+HEYEYAYUHELLO!!! you can call me niko or callie, or any of the names of whoever is fronting!!! :B<br><br>
+i LOVEEE cuddling and hiding with people!!!!! feel free to c+h with mee ^_^<br></br>
+i'm mostly offtab or afk,,, send me a whisper if u wannna talk :33<br><br>
+i don't have a dni! interact anytime whoever you are (except when dniu- is in my name) i like making new friends!!! i might be awkard at first, but i'll talk more when i feel comfortable to! :PP<br><br>
+PLEASEE interact if you're in any of my fandoms!! i don't bite, don't worry ;P (it's a lie, i bite)<br><br>
 
 <p align="center">
   <details>
