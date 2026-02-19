@@ -33,7 +33,7 @@
       <img src="https://64.media.tumblr.com/tumblr_m7xv65xLGu1qljw4m.gif">
     i am a did sys and i have a LOT of disorders like <br>
       <img src="https://64.media.tumblr.com/tumblr_m66yljNPHx1qljw4m.gif">
-    bpd, npd, aspd, social/generalized anxiety (and <br>
+    bpd, npd, social/generalized anxiety (and <br>
       <img src="https://64.media.tumblr.com/tumblr_m7xv65xLGu1qljw4m.gif">
     im autistic) + i have selective mutism<br>
       <img src="https://64.media.tumblr.com/tumblr_m66yljNPHx1qljw4m.gif">
